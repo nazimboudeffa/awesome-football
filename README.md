@@ -10,6 +10,6 @@
 
 ## Bet
 
-- parions sport
-- betclick
-- winamax
+- https://www.enligne.parionssport.fdj.fr
+- https://www.betclic.fr
+- https://www.winamax.fr
