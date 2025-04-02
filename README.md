@@ -7,3 +7,9 @@
 ## Algeria
 
 - https://www.dzfoot.com
+
+## Bet
+
+- parions sport
+- betclick
+- winamax
