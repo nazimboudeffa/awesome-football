@@ -15,3 +15,7 @@
 - https://www.enligne.parionssport.fdj.fr
 - https://www.betclic.fr
 - https://www.winamax.fr
+
+## Prediction
+
+- https://www.rowdie.co.uk
