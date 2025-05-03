@@ -19,3 +19,5 @@
 ## Prediction
 
 - https://www.rowdie.co.uk
+- https://betimate.com
+- https://tips.gg
